@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Arvind
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning, i don't know the list is endless 
+- 🌱 I’m currently learning, Don't know, the list is endless 
 - 💞️ I’m looking to collaborate on many things, which is again an endless
 - 📫 How to reach me you can reach me at arvindv86@gmail.com or Whatsapp me in 9972709565
 
